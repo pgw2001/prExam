@@ -1,14 +1,14 @@
-# 2��
+# 2조
 
-## ����
+## 정보
 
-�� Github ���̵��
+제 Github 아이디는
 
  - DriedSlime
  - ho8ae
  - cobas67
- -
+ - ye1rm
  -
 
- �Դϴ�!
+ 입니다!
 
